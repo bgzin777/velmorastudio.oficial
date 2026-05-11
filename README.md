@@ -1,1 +1,0 @@
-# velmorastudio.oficial
